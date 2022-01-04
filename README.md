@@ -1,5 +1,5 @@
 ### Hi there 👋, I am Tasffi Toaha
-#### I am a studend
+#### I am a student
 ![I am a studend](https://github.com/tasfitoaha/tasffitoaha/blob/main/Screenshot%202022-01-04%20125900.png)
 
 I make projects just for fun. I love to make new projects.
