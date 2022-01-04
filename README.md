@@ -1,4 +1,4 @@
-### Hi there 👋, I am Tasffi Toaha
+### Hi there 👋, I am Tasfi Toaha
 #### I am a student and i learn students
 ![I am a studend](https://github.com/tasfitoaha/tasffitoaha/blob/main/Screenshot%202022-01-04%20125900.png)
 
